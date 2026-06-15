@@ -1,1 +1,0 @@
-# green-campus-initiative
